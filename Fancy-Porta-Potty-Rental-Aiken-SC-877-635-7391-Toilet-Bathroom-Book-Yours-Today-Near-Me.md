@@ -5,6 +5,9 @@
   <a href="https://potta-potty-7391.netlify.app" target="_blank" style="color: #007BFF; text-decoration: none;">📞 Call Now: (877)-635-7391 ☎️💧</a>
 </p>
 
+<p align="center" style="font-size: 1.2em; font-weight: bold; margin: 20px 0;">
+</p>
+
 ## Discover Premium Bathroom Solutions in Aiken SC | <span style="color:red;">📞</span> 
 
 Hosting a special event in Aiken SC deserves exceptional amenities—including sophisticated restroom facilities. Our fancy porta potty rentals provide an elegant alternative to standard portable toilets, offering your guests a comfortable, stylish bathroom experience that complements your upscale occasion.
@@ -136,3 +139,13 @@ Our fancy porta potty rentals enhance a variety of sophisticated Aiken SC occasi
 * **Exclusive Festivals** – Elevate the experience for all attendees  
 
 **Ready to secure the finest fancy porta potty rentals in Aiken SC? Call us today at <span style="color:red;">📞</span> [📞 (877)-635-7391](https://potta-potty-7391.netlify.app) to reserve your preferred units!**
+
+*IMPORTANT **Disclaimer:**
+
+This site [Github.com] is a free service to assist homeowners in connecting with local service providers. All contractors/providers are independent and [Github.com] does not warrant or guarantee any work performed. It is the responsibility of the homeowner to verify that the hired contractor furnishes the necessary license and insurance required for the work being performed. All persons depicted in a photo or video are actors or models and not contractors listed on this site [Github.com].
+
+## Internal Links
+- [Dumpster Rental Aiken SC](https://github.com/allyoucaneatsushiin/porta-potty/blob/main/Dumpster-Rental-Aiken-SC-877-635-7391-Waste-Hauling-Temporary-Roll-Off-Same-Day-Delivery-Book-Yours-Today-Near-Me.md)
+- [Luxury Porta Potty Rental Aiken SC](https://github.com/allyoucaneatsushiin/porta-potty/blob/main/Luxury-Porta-Potty-Rental-Aiken-SC-877-635-7391-Toilet-Bathroom-Book-Yours-Today-Near-Me.md)
+- [Porta Potty Rental Aiken SC](https://github.com/allyoucaneatsushiin/porta-potty/blob/main/Porta-Potty-Rental-Aiken-SC-877-635-7391-Toilet-Bathroom-Book-Yours-Today-Near-Me.md)
+- [Portable Porta Potty Rental Aiken SC](https://github.com/allyoucaneatsushiin/porta-potty/blob/main/Portable-Porta-Potty-Rental-Aiken-SC-877-635-7391-Toilet-Bathroom-Book-Yours-Today-Near-Me.md)
